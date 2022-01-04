@@ -1,5 +1,5 @@
 # Hi there 👋
-I'm Backend Develope🚀
+I'm Backend Developer🚀
 
 I hope to develop every beautiful things. ✨
 
